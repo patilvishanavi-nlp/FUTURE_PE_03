@@ -5,7 +5,7 @@
 
 Choosing the right guidance is the most critical decision a student makes during their high school years. In a city like Pune—often called the "Oxford of the East"—the options are endless, but your goals are specific. Whether you are aiming for IIT-JEE, NEET, MHT-CET, or excellence in your Board exams, finding the best coaching institute in Pune can be the bridge between effort and success.
 
-At [Institute Name], we don’t just teach; we mentor. Based in the heart of Pune, we provide a learning environment that balances rigorous academic discipline with the support every student needs to thrive.
+At ScholarsHub Coaching, Pune, we don’t just teach; we mentor. Based in the heart of Pune, we provide a learning environment that balances rigorous academic discipline with the support every student needs to thrive.
 
 ### Why Choosing the Right Coaching Institute in Pune Matters
 - Engineering Entrances: JEE Main, JEE Advanced, MHT-CET  
